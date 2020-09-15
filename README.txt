@@ -1,2 +1,2 @@
 Hello, Git 
- NO man~~dad
+ NO man~~ww
